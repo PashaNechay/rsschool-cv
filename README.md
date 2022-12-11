@@ -1,1 +1,1 @@
-# rsschool-cv
+https://PashaNechay.github.io/rsschool-cv/cv
